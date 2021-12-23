@@ -1,0 +1,1 @@
+# 1_2_ptactice_Ayaulym_Zhumash
